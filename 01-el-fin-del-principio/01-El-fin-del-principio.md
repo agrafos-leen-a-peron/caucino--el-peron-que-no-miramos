@@ -63,8 +63,8 @@ Rein recuerda que
 > diplomaticos britanicos, trabajaron contra Miranda y el IAPI para alejar al gobierno peronista de su politica economica estatista".
 >
 >
-> Raanan Rein
-> Juan Atilio Bramuglia. Bajo la sombra del lider. La segunda linea del liderazgo peronista.
+> Raanan Rein <br>
+> Juan Atilio Bramuglia. Bajo la sombra del lider. La segunda linea del liderazgo peronista. <br>
 > Lumiere, 2006
 
  
