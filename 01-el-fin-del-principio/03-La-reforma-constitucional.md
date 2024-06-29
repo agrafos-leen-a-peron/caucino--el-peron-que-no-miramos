@@ -10,7 +10,7 @@ La Constitucion de 1949 seria jurada finalmente el 1 de Mayo de aquel año, con 
 Los radicales se habian retirado de la convencion a partir de Marzo, sosteniendo la nulidad de las reformas.
 
 El analisis de la Constitucion de 1949, naturalmente, es un tema que supera el alcance de esta obra.
-Sus implicancias economicas seran analizadas mas adelante, en especial a partir del polemico articulo 40 [texto completo](https://www.labaldrich.com.ar/art-40-const-nac-1949-los-servicos-publicos-pertenecen-al-estado-y-no-pueden-ser-enajenados/) ] de la misma y 
+Sus implicancias economicas seran analizadas mas adelante, en especial a partir del polemico articulo 40 [ [texto completo](https://www.labaldrich.com.ar/art-40-const-nac-1949-los-servicos-publicos-pertenecen-al-estado-y-no-pueden-ser-enajenados/) ] de la misma y 
 la sancion de la Ley de Inversiones Extranjeras que el propio oficialismo impulsaria años mas tarde.
 Corresponde aqui señalar que las disposiciones de aquel controvertido articulo 40 gerneraron desconfianza en varias representaciones diplomaticas.
 En primer lugar, generaron "desconcierto" en la Embajada de los EEUU. 
