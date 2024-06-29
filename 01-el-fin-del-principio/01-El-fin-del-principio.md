@@ -129,3 +129,63 @@ Remes Lenicov y Eduardo Ratti explican que el peronismo originario tuvo tres cic
 > Remes Lenicov, Ratti <br>
 > El desafio del peronismo: recuperar sus ideas fuerza <br>
 > Movimiento 21, #6, Diciembre de 2017
+
+Un dato fundamental merece ser tenido en cuenta: entre 1946 y 1948, es decir durante los "años dorados" del periodo peronista, el 75% de las exportaciones argentinas tuvieron como destino paises europeos -fundamentalmente el Reino Unido- mientras que apenas el 11% de las mismas iba a Estados Unidos.
+
+Escude explica que:
+
+> las relaciones triangulares tambienpueden distinguirse de las relaciones trilaterales complejas, es decir, las relaciones entre Argentina, Gran Bretaña y Estados Unidos durante la mayor parte de su historia previa a 1941.
+> Las relaciones triangulares emergen cuando las relaciones trilaterales complejas alcanzan un punto de interdependencia critica.
+> Tal fue el caso durante la guerra y la temprana posguerra entre la Argentina, Gran Bretaña y Estados Unidos (...) la guerra fortalecio a Estados Unidos y debilito a Gran Bretaña.
+> El proceso sirvio para radicalizar los objetivos norteamericanos respecto de la Argentina.
+
+En aquel Enero de 1949 se informaba que habian comenzado las negociaciones con el Reino Unido para reemplazar el "Acuerdo Andes" que vinculaba comercialmente a la Argentina con Londres. El negociador britanico era el embajador John Balfour. El Imperio Britanico, o lo que quedaba de el, habia atravesado años de grandes dificultades al finalizar la guerra. El año 1947, por caso, fue caracterizado por el secretario del Tesoro como "Annus Horrendus" en el que se habian combinado un invierno cruel que perjudico los stocks de carbon que eran necesarios para mantener el funcionamiento de la economia del pais y la necesidad de decretar la inconvertibilidad de la libra con respecto al dolar. La importancia de la interrelacion entre la economia argentina y la britanica no puede soslayarse. Un articulo en el Financial Times de aquel año responsabilizaba a los creditos con la Argentina por la necesidad de establecer el fin de la convertibilidad del signo monetario.
+
+Pedro Skupch inica que a comienzos de 1949 todo parecia indicar que -faltando tres meses para la finalizacion del Convenio de Andes- Argentina no iba a poder cumplir con la meta estipulada de exportacion de carnes comprometidas con el Reino Unido dado que baia vendido a Belgica y a Holanda carne que debia destinarse a los britanicos. Skupch reseña que el 10 de Enero de aquel año el Financial Times habia advertido que "Argentina se enfrentaba con una situacion en que, por un lado los precios de sus exportaciones tendian a disminuir y por el otro, la oferta en los paises afectados por la guerra se estaria recuperando". El autor indico que a partir de los incumplimientos argentinos, los britanicos mostraron su insatisfaccion al tiempo que admitieron la necesidad de alcanzar un acuerdo comercial de largo plazo en su reemplazo. 
+Las negociaciones se aceleraron luego de la salida de Miranda del gobierno.
+
+Para entonces en el gobierno peronista existia un convencimiento que indicaba que el mundo se encaminaba hacia una confrontacion directa entre los Estados Unidos y la Union Sovietica en el futuro inmediato. En el fonto, tal suposicion no era errada. La perspectiva de una tercera guerra mundial, despues de todo, era una posibilidad que existia en los albores de la Guerra Fria y que de alguna forma se produjo aunque no en terminos convencionales. Un conflico directo entre las dos superpotencias -que finalmente nunca se dio- pudo ser una apuesta del "zar" de la economia peronista de inicios del gobierno justicialista. El estallido de una guerra entre las potencias occidentales y Moscu y sus satelites
+podria haber ofrecido un nuevo escenario para la lejana Argentina.
+Lo cierto es que la Argentina, por el contrario, se encotnraba atrapada en un triangulo comercial con los Estados Unidos y Gran Bretaña que volvia imposible su desarrollo economico. El pais exportaba carnes y granos a Inglaterra pero no podia adquirir maquinarias para su plan de modernizacion e industrializacion dado que esos productos requerian dolares. Simplemente era imposible obtenerlos dado que la economia norteamericana, a diferencia de la britanica, era competitiva respecto de la Argentina.
+En pocas palabras, a los Estados Unidos no le interesaban los productos que la Argentina ofrecia proque los producia por si mismo. A su vez, Inglaterra emergio del fin de la guerra exhausta y pronto tendria que "liquidar" los restos del Imperio Britanico (la independencia de India tuvo lugar entonces). La inconvertibilidad de la libra, decretada por el gobierno que sucedio al premier conservador Winston Churchill tras el fin de la guerra, terminaria de dañar a la Argentina, que tenia creditos en esa moneda. Las libras esterlinas obtenidas a cambio de las exportaciones argentinas a Inglaterra ya no se podrian convertir en dolares estadounidenses a partir de 1947.
+
+Las criticas al IAPI (Instituto Argentino para la Promocion del Intercambio), en tanto, se centraban en que mas alla de las buenas intenciones de quienes lo habian instrumentado, el instituto encerraba un error conceptual original. El mismo resultaba del hecho de que compraba a los productores a precio fijo y los revendia a precio internacional. La rigidez del sistema hacia que los agricultores vendian a menudo por debajo del precio que hubieran esperado, en tiempos de bonanza, desalentando la produccion. A su vez, en tiempos de merma de los precios globales, el sistema de incentivos tampoco funcionaba.
+
+Aquel era el marco en el que, ese 20 de Enero de 1949, el presidente Peron tomo la decision de descabezar la conduccion del equipo economico que lo habia acompañado en los dos años y medio de su gobierno. Miranda, por su parte, abandono el pais. La embajada española en Buenos Aires lo ayudo a salir al Uruguay, donde murio pocos años mas tarde.
+
+> [! NOTE]
+> Años mas tarde, durante su exilio, Peron escribio en "La Fuerza es el Derecho de las Bestias" (1956) que Miranda "era un verdadero genio" y reconocio que le habia encomendado la direccion del Consejo Economico Nacional por su "intuicion, su tremenda capacidad de sintesis y su certera vision comercial".
+
+Daniel Chiarenza escribio:
+> Una minoria de industriales se decidio a apoyar al naciente peronismo.
+> Su representante mas caracteristico fue Miguel Miranda, quien encarno los intereses de la industria liviana.
+> Era el intelectual organizo de la burguesia nacional mas capaz.
+> Pero dejo en sus manos el maneo de la politica economica.
+> La gestion de Miranda señalo el completo predominio de la industria liviana en los primeros años del peronismo, pero tambien fue la causa del colapso final (...) Los tres años que duro la influencia de Miranda fueron los mas florecientes de la economia argentina -sin tomar en cuenta
+> el actual sistema de inclusion social inaugurado por el kirchnerismo, que es superior a aquel, teniendo en cuenta la ciencia, la tecnologia
+> y la industrializacion.
+> Don Miguel fue simplemente un tesorero de divisas originadas en las exportaciones argentinas durante la guerra, que no habian sido pagadas por los acreedores.
+>
+> Chiarenza <br>
+> El mago de las finanzas peronistas <br>
+> De politica e historia. 21 de Febrero de 2013
+
+El mismo dia 20 de Enero de 1949, en que Peron descabezo al equipo economico, Harry Truman juraba como presidente de los Estados Unidos, tras conseguir su reeleccion, en un inesperado triunfo sobre el candidato republicano, Thomas Dewey. Dean Acheson, por su parte, se convertia en el nuevo Secretario de Estado, en reemplazo de George Marshall.
+
+Dos dias mas tarde tuvo lugar una escena que hoy resultaria inimaginable: la Embajada argentina en Washington a cargo de Jeronimo Remorino repartio ropa de invierno a seiscientos niños norteamericanos de barrios carenciados de la capital norteamericana, enviada por la Fundacion Eva Peron.
+Intervino en la gestion el Agregado Obrero de la delegacion, Agustin Merlo.
+
+Unos dias antes del cambio en el equipo economico, el embajador norteamericano James Bruce informo al Departamento de Estado que "el deterioro de la condiciones de la Argentina es tal que es imposible visualizar una solucion". Señalaba tambien que el presidente del Banco Central (Maroglio) habia viajado a los Estados Unidos con el objeto de procurar un incremento de las exportaciones argentinas a ese pais y una "vaga y oscura idea de obtener un gran credito que no debe ser leido como un credito". A su vez, reseñaba que el presidente del Consejo Economico, Miranda, habia asegurado en varias ocasiones que se "cortaria las manos" antes de participar en cualquier negociacion tendiente a obtener un credito. El cable indicaba que al regreso de Maroglio desde Washington, la ciudad se habia inundado de rumores sobre su destitucion de su cargo.
+
+Los murmullos sobre la intestabilidad de la situacion continuaron en los dias que siguieron al cambio de gabinete economico del 20 de Enero.
+La magnitud de la dificil situacion economica hacia fines de 1948 y principios de 1949 en la Argentina puede graficarse a partir del contenido de un cable enviado por el Encargado de Negocios Ray (el embajador Bruca estaba en Washington) desde la embajada norteamericana el 9 de Febrero en la que se informaba al secretario de Estado sobre los rumores que indicban que Peron habia amenazado con renunciar. "Segun fuentes usualmente confiables, ayer Peron se levanto ofendido de una reunion con funcionarios amenazando renunciar y no aparecio hoy en su despacho. Se conoce que Peron se encuentra gravemente preocupado por la situacion economico-financiera" informaba. Asimismo, señalaba que los ministros Ares, Bramuglia y Gomez Morales habian insinuado que abandonarian sus cargos. Sin embargo, aseguraba que "creemos que existen muy pocas posibilidades de que Peron realmente renuncie, pero la situacion es tensa y la administracion esta profundamente preocupada por la presente situacion". EL 24 de ese mes Ray reporto una conversacion con el canciller Bramuglia en qle ue este le reconocio que Peron estaba "asustado".
+
+Asi lo explico Felix Luna años mas tarde:
+> El analisis de la politica economica peronista durante los tres o cuatro primeros años de su presidencia puede hacerla aparecer como descabellada.
+> No lo era, sin embargo, si se partia de la premisa que Peron sostenia como de inevitable cumplimiento: la proxima guerra mundial.
+> El lider justicialista estaba convencido de que en 1950 o 1952, a mas tardar, estallaria un conflicto entre Estados Unidos y la Union Sovietica.
+> En articulos que publico en 1950-51 en un diario de Buenos Aires con el seudonimo de Descartes, divagaba sobre la proxima conflagracion
+> y hasta se permitia brindar algunos consejos a los estrategas yanquis sobre la mejor manera de derrotar a los rusos...
+> Con ese presupuesto, nada insensato en plena etapa de la guerra fria, era logico que el presidente argentino actuara con el dinero del pais del mismo modo actuaria con el suyo quien estuviera absolutamente seguro de ganar en la ruleta. Pero la tercera guerra mundial no se produjo.
+> Y Peron tuvo que ponerse prudente hacia 1950.
+
