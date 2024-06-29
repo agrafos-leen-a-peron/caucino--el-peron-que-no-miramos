@@ -38,12 +38,15 @@ Las nuevas politicas exigian una modificacion en el elenco gobernante. La figura
 infundios sobre su figura lo vinculaban con hechos de corrupcion. Los hechos posteriores permiten suponer que algunas de esas versiones pudieron tener asidero mientras que otras pudieron
 responder a la necesidad del gobierno de encontrar un "chivo expiatorio".
 
-Miranda habia reunido, ademas, la oposicion de buena parte de los militares, un grupo decisivo de poder en el oficialismo. Danial Chiarenza lo explico asi: "Miranda comprendio que la 
-industria pesada no podia levantarse de un dia para otro. Exigia grandes capitales que solo podian provenir del exterior. Estados Unidos ejercia sobre la Argentina un bloqueo inflexible
-y una guerra economica sistematica. Para la industria liviana era un acto aventurero volcar el peso del pais en los altos hornos. Preferia adquirir en el exterior las maquinarias y 
-herramientas para fabricar botones, tejidos o lapices, es decir, llegar a un acuerdo con el imperialismo a costa del desarrollo costoso y lleno de obstaculos del otro camino. Por esa razon
-Miranda se trabo en una aspera lucha con el Ejercito. El conflicto politico entablado entre el diario nacionalista "Tribuna" y el ala mirandista, no reflejaba sino el choque de dos concepciones:
-la industria politica liviana y la industria pesada, esta ultima representada por la tendencia mas esclarecida de las fuerzas armadas".
+Miranda habia reunido, ademas, la oposicion de buena parte de los militares, un grupo decisivo de poder en el oficialismo. Danial Chiarenza lo explico asi: 
+
+> Miranda comprendio que la industria pesada no podia levantarse de un dia para otro. Exigia grandes capitales que solo podian provenir del
+> exterior. Estados Unidos ejercia sobre la Argentina un bloqueo inflexible y una guerra economica sistematica.
+> Para la industria liviana era un acto aventurero volcar el peso del pais en los altos hornos.
+> Preferia adquirir en el exterior las maquinarias y herramientas para fabricar botones, tejidos o lapices, es decir, llegar a un acuerdo con el imperialismo a costa del desarrollo costoso y lleno de obstaculos del otro camino.
+> Por esa razon Miranda se trabo en una aspera lucha con el Ejercito.
+> El conflicto politico entablado entre el diario nacionalista "Tribuna" y el ala mirandista, no reflejaba sino el choque de dos concepciones:
+la industria politica liviana y la industria pesada, esta ultima representada por la tendencia mas esclarecida de las fuerzas armadas.
 
 Para entonces Argentina habia alcanzado un nivel de desarrollo industrial que, si bien era pionero en la region, tenia una insuficiencia sustentable para permitir una base de crecimiento 
 futura. EL pais requeria la elaboracion de acero en cantidad y calidad suficiente para alimentar la industria pesada, una meta que recien se alcanzaria una decada mas tarde durante el 
