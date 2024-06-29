@@ -73,3 +73,59 @@ Rein recuerda que
 
 La mala imagen de Miranda ante los norteamericanos era un dato objetivo desde inicios de la administracion peronista en Junio de 1946. De nada sirvio, en ese plano, la promesa hecha por el 
 propio "zar" economico argentino al entonces embajador George Messermith en la que le aseguro que en caso de una guerra mundial la Argentina estaria del lado de los Estados Unidos.
+
+Arturo Jauretche, por su parte, abandonaba la presidencia del Banco Provincia de Buenos Aires en desacuerdo con la nueva politica economica
+y la salida de Miranda. Tiempo despues explicariaque el reemplazo de Miranda por Cereijo implicaba sustituir a quien representaba "la revolucion en el orden economico" por alguien con una "minuscula mentalidad".
+
+Decia Clarin el dia anterior a los cambios de gabinete:
+
+> la situacion del señor Miguel Miranda en el gobierno habia sufrido un cambio fundamental como consecuencia del proposito del Poder Ejecutivo
+> de dar nueva estructura a los organismos economicos y disponer la disolucion del Consejo Economico Nacional que aquel funcionario presidia".
+
+Lo cierto es que Miranda habia fracasado. O esa era al menos la percepcion del Jefe de Estado. O acaso Peron, un hombre dotado de un extraordinario sentido del pragmatismo, entendio que sus ideas simplemente no eran las adecuadas al momento historico que atravesaba al pais.
+El primer plan quinquenal elaborado por Miranda habia dado resultados pero al mismo tiempo habia acelerado la inflacion, un mal que arrastraria
+la Argentina durante decadas. El pais habia alcanzado practicamente el pleno empleo y habia visto mejorar sustancialmente la calidad de vida de la clase trabajadora. Sin embargo, mas pronto que tarde, aparecieron problemas: la escasez de dolares se comenzo a verificar en las reservas del Banco Central. A su vez, en los años cuarenta la Argentina no habia logrado escapar a su destino economico atado al Reino Unido, en momentos en que el centro del poder mundial habia girado definitivamente de Londres a Nueva York.
+
+Hugo Gambini escribio:
+
+> en los primeros dias de 1949 Miranda fue citado al despacho presidencial, donde se encontro con Cereijo, Alfredo Gomez Morales y Constantino Barro, quienes lanzaron dardos contra "la peligrosa desorganizacion en el manejo de la economia".
+> Peron asistio impasible a los ataques, mientras Miranda ensayaba una acalorada defensa de su gestion.
+> Al abandonar el despacho, sabia que su etapa estaba a punto de concluir.
+> Pocos dias despues, Ares y Gomez Morales eran convocados a la residencia de Olivos;
+> el 20 de Enero el primero asumia la cartera de Economia y el segundo la de Asuntos Economicos (que luego se llamo Ministerio de Finanzas).
+
+Tambien perdieron sus cargos Lagomarsino (Industria y Comercio) y Maroglio (IAPI).
+
+Jorge Remes Lenicov escribio muchos años despues:
+
+> Peron, entre 1946 y 1948 habia impulsado el crecimiento economico y aumentado el salario real.
+> Pero esa politica no se pudo sostener entre 1949 y 1951, por la reversion de los precios internacionales, la sequia y el bajo nivel de ahorro e inversion.
+> Fueron años de caida del PBI y del salario real, alta inflacion y aumento de los deficits gemelos (fiscal y externo).
+> Advertida la crisis y sus causas, el gobierno decidio un cambio estrategico. Implemento dos programas: uno, de estabilizacion y otro de crecimiento basado en los principios del Congreso de la Productividad y el Empleo y los objetivos e instrumentos del 2do Plan Quinquenal.
+>
+> Remes Lenicov <br>
+> El plan de Peron para salir de la crisis <br>
+> Clarin, 5 de Diciembre de 2019
+
+Remes Lenicov y Eduardo Ratti explican que el peronismo originario tuvo tres ciclos:
+
+> entre 1946 y 1949 creo las instituciones del estado social de derecho destinadas a promover a los sectores menos favorecidos por la situacion economico-social de entonces: trabajadores, ancianos, niños, mujeres y pobres.
+> El Estado arbitraba las tensiones distributivas en favor de los mas debiles y se atribuyo al trabajo la condicion de eje ordenador de la sociedad.
+> Se favorecio el desarrollo del sindicalismo y del derecho colectvo para regular las relaciones laborales, hasta entonces libradas al arbitrio patronal.
+> Se promovio la seguridad social y se inauguro un concepto de salud publica basado en la prevencion y la calidad de vida.
+> Produjo una transformacion profunda de la sociedad y de las instituciones estatales.
+> El Estado, como en muchos paises europeos de posguerra, asumio el planeamiento de mediano plazo para el desarrollo, hasta entonces librado al poder de las fuerzas economicas.
+> Ya hacia 1948 y 1951 se presentaron sintomas de estancamiento e inflacion que obligaron a revisar la gestion economica.
+> Un tercer ciclo iniciado en 1952 impone mayor racionalidad permitiendo superar la crisis e instaurar un concepto moderno de desarrollo centrado en la productividad.
+> Se adecuo la politica economica a las condiciones existentes en el pais y en el mundo.
+> A corto plazo apunto a reducir la inflacion, revertir la restriccion externa y vovler a crecer, reduciendo el deficit fiscal, controlando la emision monetaria y mejorando el tipo de cambio.
+> Se acordo el congelamiento de precios y salarios por dos años y el establecimiento de controles cuantitativos de exportaciones e importaciones.
+> Los objetivos de mediano plazo: incrementar la inversion y el ahorro, la disciplina laboral y la productividad.
+> Para ello se realizo el Congreso de la Productividad (concepto novedoso para la epoca) que concluyo con la primera concertacion entre el Estado, trabajadores y empresarios.
+> El 2do Plan Quinquenal establecio nuevas prioridades para la industria de base (siderurgia, metalmecanica, aluminio, quimica) e infraestructura (energia y caminos) y alento la inversion extranjera para incorporar capital y tecnologia (industria automotriz, de tractores y petroleo).
+> Cuando fue derrocado en 1955, el gobierno habia logrado recuperar la actividad productiva, reducir la inflacion, tener baja deuda externa y sueprar las presiones salariales. Quedaban por resolver el retraso cambiario y el bajo nivel de reservas.
+> El Informe Prebisch de 1955 fue un documento politico que tergiverso la realidad economica para justificar el golpe civico-militar.
+>
+> Remes Lenicov, Ratti <br>
+> El desafio del peronismo: recuperar sus ideas fuerza <br>
+> Movimiento 21, #6, Diciembre de 2017
