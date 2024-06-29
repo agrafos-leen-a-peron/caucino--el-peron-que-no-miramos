@@ -1,4 +1,4 @@
-# 01 - El fin del principio (1949-1950)
+# 01.01 - El fin del principio (1949-1950)
 
 Despues de unos pocos años de bonanza de posguerra, hacia fines de la decada del 40, las consecuencias de la relacion triangular entre la Argentina, el Reino Unido y los Estados Unidos se volvieron 
 gravemente perjudiciales para la economia argentina. El gobierno del presidente Juan Peron, beneficiado por la situacion de los años posteriores al final de la guerra (1945-48) pronto se vio 
