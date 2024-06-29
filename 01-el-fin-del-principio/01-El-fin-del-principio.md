@@ -52,16 +52,14 @@ En su biografia sobre Atilio Bramuglia, el primer canciller del peronismo -quien
 > lo posible por desplazar a Miranda, pero hizo muy poco por fortalecer la posicion de Bramuglia en el gobierno argentino. A comienzos de 1949, despues de la caida del primero, era claro que la > continua falta de dolares debilitaria al canciller, a quien lo habian alentado a creer que los Estados Unidos respaldarian su linea politica una vez superado el obstaculo que significaba el
 > empresario del Consejo Economico Social".
 >
-> Raanan Rein
-> Juan Atilio Bramuglia. Bajo la sombra del lider. La segunda linea del liderazgo peronista.
+> Raanan Rein <br>
+> Juan Atilio Bramuglia. Bajo la sombra del lider. La segunda linea del liderazgo peronista. <br>
 > Lumiere, 2006
 
 Rein recuerda que
-
 > ... esta bien claro que en su politica economica Miranda representaba un desafio para los Estados Unidos y un "peligroso" modelo de desarrollo para otros paises de la region.
 > Por lo tanto, a partir de 1948 la embajada norteamericana invirtio muchos esfuerzos para alejarlo del gobierno argentino (...) el embajador James Bruce, junto con Guy Ray y algunos
 > diplomaticos britanicos, trabajaron contra Miranda y el IAPI para alejar al gobierno peronista de su politica economica estatista".
->
 >
 > Raanan Rein <br>
 > Juan Atilio Bramuglia. Bajo la sombra del lider. La segunda linea del liderazgo peronista. <br>
