@@ -79,7 +79,7 @@ Rodolfo Iribarne explico a&ntilde;os mas tarde que:
 > Mercante en la Constituyente recien admitio la clausula de la reeleccion tardiamente y tras que Evita lo presionara.
 > Mercante queria ser presidente y no advirtio que la reeleccion era inexorable.
 > Mercante y Sampay terminaron mal con Peron.
-> Sampay en 1952 se exilio, tras una denuncia artificial en su contra.
+> Sampay en 1952 se exilio, tras una denuncia penal en su contra.
 > Primero en Paraguay, luego en Bolivia y finalmente en Uruguay.
 > Sampay se convirtio despues en un procer del peronismo, pero no era un procer de Peron.
 > En 1973 la Corte Suprema lo hizo conjuez.
