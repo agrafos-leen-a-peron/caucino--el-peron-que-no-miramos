@@ -10,7 +10,7 @@ La Constitucion de 1949 seria jurada finalmente el 1 de Mayo de aquel año, con 
 Los radicales se habian retirado de la convencion a partir de Marzo, sosteniendo la nulidad de las reformas.
 
 El analisis de la Constitucion de 1949, naturalmente, es un tema que supera el alcance de esta obra.
-Sus implicancias economicas seran analizadas mas adelante, en especial a partir del polemico articulo 40 de la misma y 
+Sus implicancias economicas seran analizadas mas adelante, en especial a partir del polemico articulo 40 [texto completo](https://www.labaldrich.com.ar/art-40-const-nac-1949-los-servicos-publicos-pertenecen-al-estado-y-no-pueden-ser-enajenados/) ] de la misma y 
 la sancion de la Ley de Inversiones Extranjeras que el propio oficialismo impulsaria años mas tarde.
 Corresponde aqui señalar que las disposiciones de aquel controvertido articulo 40 gerneraron desconfianza en varias representaciones diplomaticas.
 En primer lugar, generaron "desconcierto" en la Embajada de los EEUU. 
@@ -67,4 +67,25 @@ El lider argentino dijo que staba dispuesto a ofrecer seguridades por escrito so
 norteamericana con excepcion de la compañia de electricidad, la cual, por su parte, seria debidamente compensada e indemnizada.
 Peron insistio en que no comprendia por que el articulo 40 habia despertado semejante reaccion.
 
-Rodolfo Iriabrne explico a&ntilde;os mas tarde que:
+Rodolfo Iribarne explico a&ntilde;os mas tarde que:
+> El articulo 40 lo introdujo Arturo Sampay por las suyas.
+> Lo mismo que la clausula que establecia que habia que ser ciudadano nativo para ser ministro,
+> con la cual lo dejaron afuera del gobierno a Jose Figuerola, uno de los mas eficaces colaboradores de Peron.
+> El articulo 40 estaba en consonancia con la posicion de muchos sectores y cuyo emblema era Rafael Bielsa,
+> quien sostenia que los servicios publicos tenian que ser originarios del Estado y
+> rechazaba la idea de que se podian utilizar los precedentes de la Suprema Corte de los EEUU en nuestra jurisprudencia
+> reivindicando como unica fuente al administrativismo frances que era absolutamente estatista.
+> El articulo 40 refleja esa idea.
+> Mercante en la Constituyente recien admitio la clausula de la reeleccion tardiamente y tras que Evita lo presionara.
+> Mercante queria ser presidente y no advirtio que la reeleccion era inexorable.
+> Mercante y Sampay terminaron mal con Peron.
+> Sampay en 1952 se exilio, tras una denuncia artificial en su contra.
+> Primero en Paraguay, luego en Bolivia y finalmente en Uruguay.
+> Sampay se convirtio despues en un procer del peronismo, pero no era un procer de Peron.
+> En 1973 la Corte Suprema lo hizo conjuez.
+> El articulo 40 fue nefasto, y es lo que impide reivindicar la Constitucion del 49 como la legitima.
+> Pero no nos olvidemos de una cosa:
+> a quien tenian enfrente.
+> Los radicales se habian ido de la Convencion Constituyente, pero si hubieran permanecido seguramente habrian propiciado algo peor porque eran aun mas estatistas.
+> Ello es lo que sucedio, de alguna manera, en 1957, cuando se aprobo el articulo 14bis que es mas socializante todavia que toda la Constitucion del 49 junta.
+> 
