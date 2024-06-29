@@ -15,7 +15,7 @@ Alfredo Gomez Morales. Ramon Cereijo continuaria al frente de la cartera de Haci
 > todo el primer mandato de Peron hasta 1952.
 
 ![](/recursos/miguel-miranda.jpg)
-Miguel Miranda
+> Miguel Miranda
 
 Los cambios reflejaban el fracaso de Miguel Miranda [ [biografia](https://www.labaldrich.com.ar/los-olvidados-de-la-historia/economistas/miguel-miranda/) ], el primer titular del Banco Central y "zar" de la economia peronista de 1946-49. Tambien fueron desplazados los funcionarios Rolando 
 Lagomarsino (secretario de Industria y Comercio) y Orlando Maroglio (titular del IAPI).
