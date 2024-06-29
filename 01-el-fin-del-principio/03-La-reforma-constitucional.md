@@ -88,4 +88,21 @@ Rodolfo Iribarne explico a&ntilde;os mas tarde que:
 > a quien tenian enfrente.
 > Los radicales se habian ido de la Convencion Constituyente, pero si hubieran permanecido seguramente habrian propiciado algo peor porque eran aun mas estatistas.
 > Ello es lo que sucedio, de alguna manera, en 1957, cuando se aprobo el articulo 14bis que es mas socializante todavia que toda la Constitucion del 49 junta.
-> 
+> Recordemos que en 1957 se dejo sin quorum la convencion para que no avanzara con mas medidas socializantes.
+
+A su vez, Claudio Chavez interpreta que la inclusion del articulo 40 no pudo ser evitado por el propio Peron porque, segun su opinion 
+> a lo largo de su vida politica Peron nunca fue contra la corriente. La estructura mental de Peron lo llevaba internamente a acompañar
+la corriente.
+> En raras oportunidades Peron se opuso a lo que el veia que era la corriente,
+> por eso cuando en la Constituyente el 49 habia una gran mayoria de gente que habia caido bajo la influencia del forjismo y
+> con el discurso de intervencion estatal y nacionalismo que el mismo habia fomentado.
+> Por eso Peron no podia ir en contra de esa corriente".
+
+El ultimo dia de Marzo, el Secretario de Estado Acheson informo a su embajador en Buenos Aires que la Administracion estimaba que la Argentina
+tenia medios para enfrentar la crisis economica y que no tenia planes de brindar apoyo financiero en lo inmediato.
+
+Los meses que siguieron mostraron gran actividad gubernamental.
+El 3 de Mayo se anuncio la creacion de Aerolineas Argentinas, una empresa enteramente estatal y que eral el resultado de la fusion de las 
+cuatro compañias aereas que funcionaban (con importantes deficits) hasta el momento en el pais.
+Fue en ese mismo mes que el gobierno decreto la compra de la flota mercante de la compañia Dodero quien habia puesto en venta sus buques
+debido a que no lograba superar el deficit operativo de la empresa.
