@@ -14,7 +14,7 @@ Alfredo Gomez Morales. Ramon Cereijo continuaria al frente de la cartera de Haci
 > Por su parte, Ramon Cereijo habia comenzado su carrera administrativa en la Direccion de Reditos en 1936. En Junio de 1946 fue nombrado Ministro de Hacienda, cargo que conservo durante
 > todo el primer mandato de Peron hasta 1952.
 
-Los cambios reflejaban el fracaso de Miguel Miranda [biografia](https://www.labaldrich.com.ar/los-olvidados-de-la-historia/economistas/miguel-miranda/), el primer titular del Banco Central y "zar" de la economia peronista de 1946-49. Tambien fueron desplazados los funcionarios Rolando 
+Los cambios reflejaban el fracaso de Miguel Miranda [ [biografia](https://www.labaldrich.com.ar/los-olvidados-de-la-historia/economistas/miguel-miranda/) ], el primer titular del Banco Central y "zar" de la economia peronista de 1946-49. Tambien fueron desplazados los funcionarios Rolando 
 Lagomarsino (secretario de Industria y Comercio) y Orlando Maroglio (titular del IAPI).
 
 Peron habia decidido un cambio rotundo en la politica economica. Conviene tener presente las circunstancias del momento. Entre 1948 y 1952, la disponibilidad de bienes y servicios disminuyo 
